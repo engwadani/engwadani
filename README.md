@@ -2,7 +2,7 @@
 - 👀 I’m interested in Problem Solving and Coding
 - 🌱 I’m currently learning Full stack web development and Machine learning
 - 💞️ I’m looking to collaborate on Amazing project if you got feel free to get in touch with me
-- 📫 How to reach me FB eprahimwadani
+- 📫 How to reach me LinkedIn engibrahimabukar
 - 😄 Pronouns: He
 - ⚡ Fun fact: I ain't sleep at night when I got a project going on
 
